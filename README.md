@@ -10,7 +10,7 @@ cheries' profile!! ˖ ᡣ𐭩 ⊹ ࣪  ౨ৎ˚₊ ᶻ 𝗓 𐰁 .ᐟ ( ^ω^ )
 𐔌 . ⋮ dni list! .ᐟ ֹ ₊ ꒱                                                                                                      
 ⋮ ⌗ ┆ ➤ basic criteria                        
 ⋮ ⌗ ┆ ➤ people who don't respect other religions (I'm agnostic)  
-⋮ ⌗ ┆ ➤ ppl who support weirdos like Melanie, dream, meowbahh and a lot more. 
+⋮ ⌗ ┆ ➤ ppl who support weirdos like Melanie, dream, meowbahh and a lot more.                   
 ⋮ ⌗ ┆ ➤ ppl who bully others bc they have irls and kins!!  
 ⋮ ⌗ ┆ ➤ ppl who are weirdos that are 21+ like im fine w u if youre normal being weird like flirting w kids >_<
 
